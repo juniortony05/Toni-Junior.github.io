@@ -1,2 +1,5 @@
 # Toni-Junior.github.io
-A portfolio showcasing my work as an Educator who has been in the classroom for the past 10 years.  
+## K-12 Music and Homeroom Teacher | 10 years experience
+
+I believe learning happens best when learners are curious and having fun
+
